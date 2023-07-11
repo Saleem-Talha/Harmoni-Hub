@@ -56,5 +56,7 @@ In summary, Harmonic Hub sets a new standard for music apps by providing a featu
 •	User Feedbacks
 
 # Developer
+Saleem Talha
 
-  [Saleem Talha](https://mail.google.com/mail/u/0/#inbox?compose=GTvVlcSKhcBvzTMFXqQSFLsWHJzhKjzFjgQLzZcGHzqNjrnhFLbtNwpRHCNMLQllFBdnKvDkWQwxK) 
+Mail:  [saleemtalha967@gmail.com](https://mail.google.com/mail/u/0/#inbox?compose=GTvVlcSKhcBvzTMFXqQSFLsWHJzhKjzFjgQLzZcGHzqNjrnhFLbtNwpRHCNMLQllFBdnKvDkWQwxK)  
+
