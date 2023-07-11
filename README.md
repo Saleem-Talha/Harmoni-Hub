@@ -54,3 +54,7 @@ In summary, Harmonic Hub sets a new standard for music apps by providing a featu
 •	User Playlists
 
 •	User Feedbacks
+
+# Developer
+
+  [Saleem Talha](https://mail.google.com/mail/u/0/#inbox?compose=GTvVlcSKhcBvzTMFXqQSFLsWHJzhKjzFjgQLzZcGHzqNjrnhFLbtNwpRHCNMLQllFBdnKvDkWQwxK) 
